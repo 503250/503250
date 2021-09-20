@@ -8,3 +8,4 @@
 503250/503250 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+Im interested in working for the school for janitorial and im looking for full time and can be reach at 8035545684
